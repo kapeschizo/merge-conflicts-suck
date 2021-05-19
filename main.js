@@ -1,2 +1,1 @@
-var num = 50;
-var truth = "hello flatter earth";
+VimCrypt~03!ù 5YÅèşA\°4tùD7„ŞtªEñ.Â{ñ	ğ;b £Yƒh»Øh-U6ìŠú•tuj}ö
